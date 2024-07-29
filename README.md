@@ -8,7 +8,7 @@
 
 **✨Общее✨**
 
-🔥 [Невероятно оформленное резюме](https://drive.google.com/file/d/1tQUU9g73IL95DutdqaomdTqQCrHIrLag/view?usp=sharing)
+🔥 [Резюме](https://ekaterinburg.hh.ru/resume/87151ce8ff0c6fcdce0039ed1f484a6e696248)
 
 <br/>
 
